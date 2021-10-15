@@ -7,5 +7,5 @@
 - 💬 Ask me about ... ANYTHING
 - 📫 How to reach me: ... [INSTAGRAM PROFILE](https://www.instagram.com/k.r.dhanush123/)
 - 😄 Pronouns: ... HE/HIM
-- ⚡ Fun fact: ... I LOVE ANIME
+- ⚡ Fun fact: ... I LOVE ANIME & MANGA
 
