@@ -7,6 +7,6 @@ I'm a 19yr old Diplomat & Engineer, who does Designing and Programming as passio
 - Ask me anything,
 - Reach me via: [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='20'>](https://www.linkedin.com/in/www.linkedin.com/in/dhanush-k-r/)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='20'>](https://www.instagram.com/https://www.instagram.com/k.r.dhanush123//)  
 - Pronouns: He/Him
-- Fun fact: I Love anime and manga,
+- Fun fact: I ❤ Anime and Manga,
 
 ### NICE TO MEET YOU!!! 
