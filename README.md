@@ -8,4 +8,7 @@
 - 📫 How to reach me: ... [INSTAGRAM PROFILE](https://www.instagram.com/k.r.dhanush123/)
 - 😄 Pronouns: ... HE/HIM
 - ⚡ Fun fact: ... I LOVE ANIME & MANGA
+- <p>< Img align="right" src="https://i.gifer.com/ByHV.gif" width="50%" height="50%" /></p>
+
+
 
