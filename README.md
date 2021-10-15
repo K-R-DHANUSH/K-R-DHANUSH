@@ -1,4 +1,4 @@
-### Hi Everyone, I'm K.R.DHANUSH👋 <p><img align="right" src="https://github.com/K-R-DHANUSH/K-R-DHANUSH/blob/main/ByHV.gif" width="45%" height="45%" /></p>
+### Hi Everyone, I'm K.R.DHANUSH👋 <p><img align="right" src="https://github.com/K-R-DHANUSH/K-R-DHANUSH/blob/main/ByHV.gif" width="42%" height="42%" /></p>
 
 I'm a 19yr old Diplomat & Engineer, who does Designing and Programming as passion, and have a goal to become an entrepreneur, yeah that's me.
 - I'm a Mechatronics Engineer & a Diplomat in the field of Automotive Engg,
